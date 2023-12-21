@@ -1,1 +1,0 @@
-# utkucetinkaya.github.io
